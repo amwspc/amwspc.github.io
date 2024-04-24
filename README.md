@@ -5,5 +5,4 @@ _i guess you are in a wrong way cause, this is a private club acutally u know?_
 
 ***dont just click whatever you see bro*** <sub> just a little advice </sub>
 
-> [!tip]
-> Helpful advice for doing things better or more easily.
+
